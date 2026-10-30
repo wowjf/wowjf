@@ -10,7 +10,7 @@
 
 <br/>
 
-**`[ WEB DEVELOPER ]`** · **`[ VIBE CODER ]`** · **`[ DIGITAL CREATOR ]`**
+**`[ BACKEND DEVELOPER ]`** · **`[ FIRSAT WEB ]`** · **`[ BRAND MANAGER ]`**
 
 <br/>
 
