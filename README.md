@@ -10,7 +10,7 @@
 
 <br/>
 
-**`[ BACKEND DEVELOPER ]`** · **`[ FIRSAT WEB ]`** · **`[ BRAND MANAGER ]`**
+**`⌘ Team Leader / www.firsatweb.com `**
 
 <br/>
 
